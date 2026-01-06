@@ -62,7 +62,7 @@ Currently, I work as a **freelancer**, delivering projects in English for client
 ---
 
 ## 📫 Let's Connect
-- [LinkedIn](Your LinkedIn URL)  
+- [LinkedIn](www.linkedin.com/in/khetam-hamdy-03a294225 )  
 - [GitHub](https://github.com/khetamHamdy)  
 - [Email](mailto:your.email@example.com)
 
